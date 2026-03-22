@@ -1,0 +1,2 @@
+# narkotiki_bad
+ploho
